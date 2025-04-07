@@ -10,3 +10,5 @@ _([черемша](https://memetopia.ru/storage/memes/1/20254/i04pro12pXjJxNvbPC
 ![image_2025-04-07_18-13-40_1](https://github.com/user-attachments/assets/78708ac8-0357-4522-ac1c-3139bb5a494a)
 
 ![image_2025-04-07_18-13-40_2](https://github.com/user-attachments/assets/e433d984-7d0b-4ba9-abd9-e065554a9b8e)
+
+![image](https://github.com/user-attachments/assets/c4631b48-f68c-4ee2-8498-d8d77af2ee9b)
