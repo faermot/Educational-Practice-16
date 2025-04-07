@@ -5,7 +5,7 @@ _([черемша](https://memetopia.ru/storage/memes/1/20254/i04pro12pXjJxNvbPC
 
 > Карасев Илья
 
-![image_2025-04-07_18-13-40](https://github.com/user-attachments/assets/6a2eb638-fc14-4bed-acc9-7461c209777f)
+![image](https://github.com/user-attachments/assets/e5f5b04f-5d83-4fce-9c9f-33823a505add)
 
 ![image_2025-04-07_18-13-40_1](https://github.com/user-attachments/assets/78708ac8-0357-4522-ac1c-3139bb5a494a)
 
